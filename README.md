@@ -1,10 +1,15 @@
 # Public Relations Officer
+## Core Proficiencies
+- Public Relations Management.                   - Office Administration.                            - NOCs Coordination.
+- Marketing and Brand Development            - Government relations specialist.
+- SEO, SEM, and Social Media spicialist.      - Microsoft Office Suite (Word, Exel).    - Web Site design.
+- Professional and compelling negotiator
 
 ## Professional Experiance 
 
-### Government & Public Relations & Office Adminstration @ Electra Surveying Engineering Services
+### Government & Public Relations & Office Adminstration @ Electra Surveying Engineering Services    08/2022 – present
+Dubai, United Arab Emirates
 
-## Electra Surveying Engineering Services
 - Manage trade license renewals and amendments, and oversee staff
 accommodations, travel Booking tickets, and transportation for 4 licenses.
 - Support administrative tasks and project consultations.
@@ -42,3 +47,25 @@ visibility.
 - Lead the development of marketing strategies, media campaigns, and group
 websites for a strong digital presence.
 - Track and analyze ROI, SEO performance, and KPIs to optimize marketing efforts.
+
+  ### Government & Public Relations & Office Adminstration @ Saif al khalili group of Companies - Golden Corner Printing Press LLC   03/2020 – 07/2022
+  Abu Dabi,United Arab Emirates
+- Manage the administration of contracts from tendering and negotiation through to
+contract execution and close-out.
+- Supervised administrative staff and handled government tender submissions and
+registrations.
+- Led business development by fostering relationships with decision-makers, securing
+new business opportunities.
+- Assisted in processing and renewing employee and family visas, and managed HR
+documentation.
+- Spearheaded recruitment strategies, ensured payroll accuracy, and supported HR
+functions.
+## Business Development  & Office Adminstration @ Dram Works Co. Ltd 02/2016 – 08/2020
+Khartoum, Sudan
+## Sales Representative @ Tide For Trading & Investment 02/2012 – 01/2014
+khartoum - Omdurman, Sudan
+- Visiting clients and potential clients to evaluate needs or promote products and
+services.
+- Present, promote, and sell products to existing and prospective customers.
+- Helping determine pricing schedules for quotes, promotions, and negotiations.
+ Coordinate sales efforts with team members and other departments.
